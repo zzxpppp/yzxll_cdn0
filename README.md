@@ -10,3 +10,5 @@
 [题2带答案.txt](题2带答案.txt)
 
 [xtc代刷价目表](xtc_flash_price.png)
+
+[微信收款码](skm.png)
