@@ -11,7 +11,7 @@
 
 [xtc代刷价目表](xtc_flash_price.png)
 
-[微信收款码](skm.png)
+[微信收款码](skm.jpg)
 
 [绿橙小清新工作总结汇报PPT模板_爱给网_aigei_com.pptx](绿橙小清新工作总结汇报PPT模板_爱给网_aigei_com.pptx)
 
